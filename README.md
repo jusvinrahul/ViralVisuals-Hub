@@ -1,1 +1,0 @@
-ViralVisuals Hub is an informative and visually engaging platform that aims to educate users about different viruses, diseases, and their symptoms through captivating animations and interactive content. The website provides a comprehensive yet accessible resource for users to learn about health-related topics.
